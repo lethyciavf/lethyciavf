@@ -12,7 +12,7 @@
 
 📫 Você pode me encontrar clincando nos ícones abaixo! 
 
-🏁 Fun fact: Trabalhei por seis anos como mecânica especilaista em elétrica e eletrônica motorsport!
+🏁 Fun fact: Trabalhei por seis anos como mecânica especialista em elétrica e eletrônica motorsport!
 
 ##
 
