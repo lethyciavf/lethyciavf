@@ -1,4 +1,4 @@
-### Olá!! Fique a vontade, lembre-se de apagar a luz ao sair! 👋
+### Olá!! Fique à vontade, lembre-se de apagar a luz ao sair! 👋
 ##
 
 🎯 Atualmente estou focada em Python e suas milhares de bibliotecas
